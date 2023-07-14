@@ -1,0 +1,1 @@
+This organization's profile picture is [cave](https://flickr.com/photos/84672900@N06/9017341831/) by [i-n-t-e-l-l-i-g-e-n-t-s-i-a](https://www.flickr.com/photos/84672900@N06/) and it's licensed under [CC-BY](https://creativecommons.org/licenses/by/2.0/).
